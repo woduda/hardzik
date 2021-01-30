@@ -1,0 +1,2 @@
+# hardzik
+New story begins
